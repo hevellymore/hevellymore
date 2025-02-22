@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil 🖤💋
+### Boas vindas ao meu perfil 💓
 
 Meu nome é Hevelly Moreira
 
@@ -12,4 +12,4 @@ Meu nome é Hevelly Moreira
   
   00001118410993sp@al.educacao.sp.gov.br
 
- ![](https://media1.tenor.com/m/f1XgpFw87zgAAAAd/tokyo-ghoul-tokyo.gif)
+ ![](https://media1.tenor.com/m/733ySqHIP1oAAAAC/geto-suguru.gif)

@@ -5,7 +5,7 @@ Meu nome é Hevelly Moreira
 - Estou estudando no [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
-- adoro música e manhwas🤓
+- adoro música🤓
 
   ### Você entra em contato comigo 📫
 
